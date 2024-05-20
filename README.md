@@ -5,9 +5,9 @@ sonho? ser programador e, conseguir o recorde de maior uso de pc (so deixar o co
 <h3>Brasileiro 🇧🇷, Nordestino mais sou mais paulista. (99% paulista e 1% nordestino)</h3>
 Aqui, no Github, eu vou postar coisas em arquivos Batch para meh, tedio moments :B
 <h2>Redes Sociais!</h2>
-Tiktok: Fedoratechuser
+Tiktok: 
 
-Tiktok2: wintechuser2
+Tiktok2:
 
 instagram: fedoratinsta
 
